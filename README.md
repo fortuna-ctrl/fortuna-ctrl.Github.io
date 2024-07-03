@@ -11,4 +11,4 @@ You are human, you are able bodied, you are well suited for reproduction.
 
 [Fish](https://fortuna-ctrl.github.io/yay.html)
 
-[Walter White x Rudolph Steiner fanfic AI generated](https://docs.google.com/document/d/1UPRcugK8xj0JekbSDWo8BKwBrRVOHQ2RoKG09bNh_nc/edit)
+[Walter White x Rudolph Steiner fanfic AI generated](https://docs.google.com/document/d/e/2PACX-1vR3koa1Z3Ac_VlT_RIu_c52Las8Nw6hrDT9W6hStzjn1nkTCC4UxPq6d-H3JgyXIHYddjVpNFgw7zZV/pub)
